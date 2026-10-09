@@ -8,6 +8,8 @@
 - Youssef Mohamed Masoud Mohamed : AI Film producer
 - Shahd Nagy Muhammed Nagy : AI Film producer
 - Ahmed Salah Mohammed Abokoura : AI Film producer
+
+  
 المحاضر : إيهاب عبيد
 
 Drive Link : https://drive.google.com/drive/folders/1jwnJXu6nRt0ADGW6nrNGe3bDhEdbswER?usp=drive_link
